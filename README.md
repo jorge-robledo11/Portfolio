@@ -1,3 +1,3 @@
 # Portfolio 
-💼
-Algunos de mis proyectos personales
+
+Algunos de mis proyectos personales 💼📊📈
